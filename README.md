@@ -2,7 +2,7 @@
 - 👀 I’m interested in guangboju
 - 🌱 I’m currently learning cooking
 - 💞️ I’m looking to collaborate on twitter or tg or ins
-- my slogan :“柿柿“如意
+- my slogan :nothing is impossible
 
 
 <!---
